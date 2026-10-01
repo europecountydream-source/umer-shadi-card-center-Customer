@@ -1,0 +1,1 @@
+Customer-only website. Includes the supplied three card images and Umer Graphic logo. Customers cannot upload, edit prices, or delete cards. WhatsApp: 0325-6404270.
